@@ -4,5 +4,5 @@
 <p>
   so uh<br>
   feel free to use it in whatever, edit them or something, add breakcore out of nowhere, replace the sounds with doors, anything idk ig lmao<br>
-  credit is optional but preferred (because i say so and i made them)<br>
+  credit is optional but preferred (because i say so and i made them /j/j/j (nahhhh you can do whatever with it ig))<br>
 </p>
